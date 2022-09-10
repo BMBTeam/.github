@@ -1,4 +1,4 @@
-## 👋Hay, we're Blood Moon Befall!
+## Hay, we're Blood Moon Befall!👋
 
 <!--
 
